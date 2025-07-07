@@ -1,6 +1,6 @@
-- 👋 Hi, I’m wangziyu0305
+- 👋 Hi, I’m SharkyMew
 - 👀 I’m interested in RoboMaster
-- 📫 Please send an email to wangziyu3280@foxmail.com
+- 📫 Please send an email to sharkymew@icloud.com
 
 If you want to contact me, please use Chinese
 
